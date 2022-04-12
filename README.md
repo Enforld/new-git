@@ -13,3 +13,4 @@
 
 [경일대학교](http://www.kiu.ac.kr)
 
+![비](./D826-_kVUAAj3Xj.jpg)
